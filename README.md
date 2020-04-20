@@ -1,1 +1,0 @@
-# navidmalakootikhah.github.io
